@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Juanmmyv1
+- 👀 I’m interested in football, traveling, building digital products
+- 🌱 I’m currently learning to code in python
+- 💞️ I’m looking to collaborate on anything interesting where I can help with basic skills
+- 📫 How to reach me: https://www.linkedin.com/in/juanmolinayvedia/
